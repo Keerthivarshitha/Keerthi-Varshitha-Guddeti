@@ -36,7 +36,7 @@ B.Tech student in Electronics and Communication Engineering seeking an entry-lev
 
 ---
 
-## 💼 Experience
+## 💼 ACCOMPLISHMENT
 
 ### Embedded Systems Intern — **SAK Informatics**  
 📍 Hyderabad | 📅 Jun 2022 – Nov 2022  
