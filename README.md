@@ -32,7 +32,7 @@ B.Tech student in Electronics and Communication Engineering seeking an entry-lev
 ### Diploma in Electronics and Communication  
 📍 Mother Teresa Institute of Science and Technology, Sathupalli  
 📅 2020 – 2023  
-🎓 CGPA: 9.6/10
+🎓 CGPA: 9.9/10
 
 ---
 
